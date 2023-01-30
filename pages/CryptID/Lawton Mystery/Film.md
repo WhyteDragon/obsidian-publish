@@ -1,0 +1,1 @@
+Obtained from the [[Nurse]]. It had photos of the party going about their business, but also of various people who are likely patients suffering from [[Bug Bites]]. The film itself had copious amounts of bright blue in its negatives, something likely red (like the bites).

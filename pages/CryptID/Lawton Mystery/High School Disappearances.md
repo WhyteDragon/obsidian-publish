@@ -1,0 +1,1 @@
+ An incident in which a group of high schoolers disappeared while out on a hike. The only known survivor was [[Abigail Close]], who returned a week later with no memory of the incident. The incident occurred in Mott, a nearby township.

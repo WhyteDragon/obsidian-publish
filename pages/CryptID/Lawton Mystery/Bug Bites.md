@@ -1,0 +1,1 @@
+People infected by these bites appeared to get very sick. Symptoms were similar to the flu. Seems to be accompanied by a [[Strange Smell]].

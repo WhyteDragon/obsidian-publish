@@ -1,0 +1,1 @@
+Obtained from the locks on the strange [[The Basement Door|Door]] in the [[Pizza Bar]]'s basement. Smells like dirt, animal hair, and metal or blood.

@@ -1,0 +1,1 @@
+Worked at Lawton's [[Clinic]]. After [[Ruth]] and [[Keith]] left, she followed the group to take pictures with a camera. Ultimatley, she was chased off after the group took the [[Film]] from the camera.
